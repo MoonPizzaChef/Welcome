@@ -6,5 +6,7 @@ First comes, first serves!
 
 **Official Discussion Channel**: https://t.me/MOONPlZZA  
 **Official Contract Address**: 0x737A589811Bc20D114Dc6878522867352f3DED81  
+**Solarbeam**: https://solarbeam.io/    
+
   
 Enjoy your meal!
